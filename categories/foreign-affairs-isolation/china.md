@@ -228,4 +228,14 @@ APPLE & ALIBABA, AUGUST [https://www.reuters.com/business/retail-consumer/apple-
 
 [https://www.reuters.com/world/china/china-ai-bubble-has-already-burst-2026-10-26/](https://www.reuters.com/world/china/china-ai-bubble-has-already-burst-2026-10-26/)
 
-[https://finance.yahoo.com/markets/stocks/articles/investors-piled-china-ai-boom-171502130.html](https://finance.yahoo.com/markets/stocks/articles/investors-piled-china-ai-boom-171502130.html)
+[https://finance.yahoo.com/markets/stocks/articles/investors-piled-china-ai-boom-171502130.html](https://finance.yahoo.com/markets/stocks/articles/investors-piled
+
+### 2026 November
+
+2026-11-12 The NVIDIA CEO Jensen Huang was caught up in a scandal involving extra-marital relations with a potential Chinese espionage asset. NVIDIA stock plunged and Huang resigned. 
+
+[https://www.foxbusiness.com/business-leaders/bessent-calls-nvidia-leadership-shake-up-amid-china-chip-scandal-urges-outside-ceo](https://www.foxbusiness.com/business-leaders/bessent-calls-nvidia-leadership-shake-up-amid-china-chip-scandal-urges-outside-ceo)
+
+[https://www.cnn.com/2026/11/14/tech/china-megaspeed-nvidia-scandal-hnk-intl](https://www.cnn.com/2026/11/14/tech/china-megaspeed-nvidia-scandal-hnk-intl)
+
+[https://www.theguardian.com/technology/2026/nov/16/elon-musk-tech-execs-open-letter-jensen-huang-return-nvidia-ceo](https://www.theguardian.com/technology/2026/nov/16/elon-musk-tech-execs-open-letter-jensen-huang-return-nvidia-ceo)

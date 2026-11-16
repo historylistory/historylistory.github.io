@@ -340,3 +340,12 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/09/18/more-us-tr
 2026-10-30 The Pentagon kicked out another US Navy sailor for experiencing a mental health crisis will aboard the USS Abraham Lincoln. 
 
 [https://www.youtube.com/watch?v=lCB9-03xzSg&list=WL&index=7](https://www.youtube.com/watch?v=lCB9-03xzSg&list=WL&index=7)
+
+### 2026 November
+
+2026-11-11 Hegseth and his entourage were yelled at by a guard for breaking silence and giggling at the Tomb of the Unknown Soldier. Later Hegseth awarded the guard. 
+
+[https://www.cnn.com/2026/11/11/politics/hegseth-reprimanded-guard-tomb-unknown-soldier](https://www.cnn.com/2026/11/11/politics/hegseth-reprimanded-guard-tomb-unknown-soldier)
+
+[https://www.npr.org/2026/11/13/nx-s1-6039845/hegseth-awards-medal-to-soldier-who-chastised-him](https://www.npr.org/2026/11/13/nx-s1-6039845/hegseth-awards-medal-to-soldier-who-chastised-him)
+

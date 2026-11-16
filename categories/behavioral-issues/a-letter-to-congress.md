@@ -782,3 +782,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 
 
 2026-11-11 The Trump administration proposed changes to further remove SNAP benefits and further toughen restrictions.  
+
+2026-11-11 Hegseth and his entourage were yelled at by a guard for breaking silence and giggling at the Tomb of the Unknown Soldier. Later Hegseth awarded the guard. 

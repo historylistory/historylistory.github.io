@@ -264,3 +264,5 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2026-11-01 A private jet crashed in Palm Beach County, Florida, killing all 9 passengers. 
 
 2026-11-03 Two died in a fatal plane crash in Hamburg Iowa. 
+
+2026-11-13 the FAA issued a nationwide ground stop, citing severe communications issues. GOP leaders blamed Democrats and Biden. 

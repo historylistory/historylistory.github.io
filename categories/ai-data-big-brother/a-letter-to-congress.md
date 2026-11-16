@@ -545,8 +545,5 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-11-10 The Senate advanced a bill to speed up permit review for infrastructure projects, like data centers.
 
-[https://www.theguardian.com/us-news/2026/nov/09/senate-advances-bill-energy-projects](https://www.theguardian.com/us-news/2026/nov/09/senate-advances-bill-energy-projects)
 
-[https://www.cnbc.com/2026/11/09/senate-infrastructure-bill-data-centers.html](https://www.cnbc.com/2026/11/09/senate-infrastructure-bill-data-centers.html)
-
-[https://www.youtube.com/watch?v=u0UOUCQyBbg&list=WL&index=3](https://www.youtube.com/watch?v=u0UOUCQyBbg&list=WL&index=3)
+2026-11-12 The NVIDIA CEO Jensen Huang was caught up in a scandal involving extra-marital relations with a potential Chinese espionage asset. NVIDIA stock plunged and Huang resigned. 

@@ -754,6 +754,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 ## 2026 November
 
+2026-11-03 DeSantis increasingly criticized Trump and tried to separate himself. 
+
 2026-11-05 Marco Rubio was reportedly on resignation watch. 
 
 2026-11-05 JD Vance distanced himself from Trump.

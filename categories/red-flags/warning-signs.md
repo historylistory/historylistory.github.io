@@ -606,6 +606,13 @@ PAY WALL [https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-chin
 
 ### 2026 November and the rats jump ship 
 
+2026-11-03 DeSantis increasingly criticized Trump and tried to separate himself. 
+
+[https://www.newsweek.com/desantis-breaks-with-trump-day-before-midterm-as-democrats-surge-12657233](https://www.newsweek.com/desantis-breaks-with-trump-day-before-midterm-as-democrats-surge-12657233)
+
+[https://thehill.com/homenews/state-watch/6221727-desantis-knocks-republicans-resisting-trump-judicial-appointment-push/](https://thehill.com/homenews/state-watch/6221727-desantis-knocks-republicans-resisting-trump-judicial-appointment-push/)
+
+
 2026-11-05 Marco Rubio was reportedly on resignation watch. 
 
 [https://www.the-independent.com/news/world/americas/us-politics/marco-rubio-donald-trump-resignation-midterms-b3076575.html](https://www.the-independent.com/news/world/americas/us-politics/marco-rubio-donald-trump-resignation-midterms-b3076575.html)

@@ -169,3 +169,18 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://www.wowt.com/2026/11/03/ntsb-fremont-county-deputies-investigating-plane-crash-near-hamburg/](https://www.wowt.com/2026/11/03/ntsb-fremont-county-deputies-investigating-plane-crash-near-hamburg/)
 
 [https://www.ketv.com/article/iowa-deadly-plane-crash/74326780](https://www.ketv.com/article/iowa-deadly-plane-crash/74326780)
+
+2026-11-13 the FAA issued a nationwide ground stop, citing severe communications issues. GOP leaders blamed Democrats and Biden. 
+
+[https://www.faa.gov/newsroom/nationwide-ground-stop-questions-and-answers](https://www.faa.gov/newsroom/nationwide-ground-stop-questions-and-answers)
+
+[https://abcnews.com/US/nationwide-ground-stop-ordered-airports-faa/story?id=138121848](https://abcnews.com/US/nationwide-ground-stop-ordered-airports-faa/story?id=138121848)
+
+[https://apnews.com/article/trump-ground-stop-air-travel-faa-duffy-1a308c557552b2ce24a0532fee0be191](https://apnews.com/article/trump-ground-stop-air-travel-faa-duffy-1a308c557552b2ce24a0532fee0be191)
+
+[https://www.nbcnews.com/news/us-news/router-problem-one-faa-site-led-nationwide-ground-stop-rcna609325](https://www.nbcnews.com/news/us-news/router-problem-one-faa-site-led-nationwide-ground-stop-rcna609325)
+
+[https://www.cnbc.com/2026/11/15/trump-breaks-silence-on-faa-nationwide-ground-stop-blames-biden-.html](https://www.cnbc.com/2026/11/15/trump-breaks-silence-on-faa-nationwide-ground-stop-blames-biden-.html)
+
+[https://www.cbsnews.com/baltimore/video/airlines-and-airports-work-to-return-to-normal-after-nationwide-ground-stop/](https://www.cbsnews.com/baltimore/video/airlines-and-airports-work-to-return-to-normal-after-nationwide-ground-stop/)
+

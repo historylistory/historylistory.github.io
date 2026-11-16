@@ -1117,6 +1117,16 @@ SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bai
 
 ### 2026 November
 
+2026-11-07 Trump asked UFC boss Dana White to be press secretary, rather than former Republican Conference US press secretary Dana W. White. 
+
+[https://www.bbc.com/news/articles/cvze47p9jeexo](https://www.bbc.com/news/articles/cvze47p9jeexo)
+
+[https://www.cnn.com/2026/11/07/politics/dana-white-trump-press-secretary](https://www.cnn.com/2026/11/07/politics/dana-white-trump-press-secretary)
+
+[https://www.youtube.com/watch?v=eiv8OT1PvAo&t=86s](https://www.youtube.com/watch?v=eiv8OT1PvAo&t=86s)
+
+[https://www.war.gov/About/Biographies/Biography/Article/1170857/dana-w-white/](https://www.war.gov/About/Biographies/Biography/Article/1170857/dana-w-white/)
+
 2026-11-10 Eleven Democrats failed to show up to impeach Hegseth. 
 
 [https://www.youtube.com/watch?v=84HgCeJmWXk&list=WL&index=4&t=181s](https://www.youtube.com/watch?v=84HgCeJmWXk&list=WL&index=4&t=181s)
@@ -1129,3 +1139,16 @@ SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bai
 
 More about Pete Hegseth: [https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6](https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6)
 
+2026-11-13 the FAA issued a nationwide ground stop, citing severe communications issues. GOP leaders blamed Democrats and Biden. 
+
+[https://www.faa.gov/newsroom/nationwide-ground-stop-questions-and-answers](https://www.faa.gov/newsroom/nationwide-ground-stop-questions-and-answers)
+
+[https://abcnews.com/US/nationwide-ground-stop-ordered-airports-faa/story?id=138121848](https://abcnews.com/US/nationwide-ground-stop-ordered-airports-faa/story?id=138121848)
+
+[https://apnews.com/article/trump-ground-stop-air-travel-faa-duffy-1a308c557552b2ce24a0532fee0be191](https://apnews.com/article/trump-ground-stop-air-travel-faa-duffy-1a308c557552b2ce24a0532fee0be191)
+
+[https://www.nbcnews.com/news/us-news/router-problem-one-faa-site-led-nationwide-ground-stop-rcna609325](https://www.nbcnews.com/news/us-news/router-problem-one-faa-site-led-nationwide-ground-stop-rcna609325)
+
+[https://www.cnbc.com/2026/11/15/trump-breaks-silence-on-faa-nationwide-ground-stop-blames-biden-.html](https://www.cnbc.com/2026/11/15/trump-breaks-silence-on-faa-nationwide-ground-stop-blames-biden-.html)
+
+[https://www.cbsnews.com/baltimore/video/airlines-and-airports-work-to-return-to-normal-after-nationwide-ground-stop/](https://www.cbsnews.com/baltimore/video/airlines-and-airports-work-to-return-to-normal-after-nationwide-ground-stop/)

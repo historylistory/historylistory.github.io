@@ -24,3 +24,17 @@ permalink: /categories/transportation/privatization/
 [https://www.reuters.com/world/us/trump-proposes-begin-privatizing-us-airport-security-operations-2026-04-03/](https://www.reuters.com/world/us/trump-proposes-begin-privatizing-us-airport-security-operations-2026-04-03/)
 
 [https://www.wfla.com/news/privatizing-tsa-on-the-table-as-shutdown-impacts-airport-security/](https://www.wfla.com/news/privatizing-tsa-on-the-table-as-shutdown-impacts-airport-security/)
+
+2026-11-13 the FAA issued a nationwide ground stop, citing severe communications issues. GOP leaders blamed Democrats and Biden. 
+
+[https://www.faa.gov/newsroom/nationwide-ground-stop-questions-and-answers](https://www.faa.gov/newsroom/nationwide-ground-stop-questions-and-answers)
+
+[https://abcnews.com/US/nationwide-ground-stop-ordered-airports-faa/story?id=138121848](https://abcnews.com/US/nationwide-ground-stop-ordered-airports-faa/story?id=138121848)
+
+[https://apnews.com/article/trump-ground-stop-air-travel-faa-duffy-1a308c557552b2ce24a0532fee0be191](https://apnews.com/article/trump-ground-stop-air-travel-faa-duffy-1a308c557552b2ce24a0532fee0be191)
+
+[https://www.nbcnews.com/news/us-news/router-problem-one-faa-site-led-nationwide-ground-stop-rcna609325](https://www.nbcnews.com/news/us-news/router-problem-one-faa-site-led-nationwide-ground-stop-rcna609325)
+
+[https://www.cnbc.com/2026/11/15/trump-breaks-silence-on-faa-nationwide-ground-stop-blames-biden-.html](https://www.cnbc.com/2026/11/15/trump-breaks-silence-on-faa-nationwide-ground-stop-blames-biden-.html)
+
+[https://www.cbsnews.com/baltimore/video/airlines-and-airports-work-to-return-to-normal-after-nationwide-ground-stop/](https://www.cbsnews.com/baltimore/video/airlines-and-airports-work-to-return-to-normal-after-nationwide-ground-stop/)

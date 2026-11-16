@@ -374,3 +374,14 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 [https://ca.finance.yahoo.com/markets/stocks/losers/](https://ca.finance.yahoo.com/markets/stocks/losers/)
 
 [https://beincrypto.com/us-stock-market-crash-ai-bubble-bursting/](https://beincrypto.com/us-stock-market-crash-ai-bubble-bursting/)
+
+### 2026 November
+
+2026-11-12 The NVIDIA CEO Jensen Huang was caught up in a scandal involving extra-marital relations with a potential Chinese espionage asset. NVIDIA stock plunged and Huang resigned. 
+
+[https://www.foxbusiness.com/business-leaders/bessent-calls-nvidia-leadership-shake-up-amid-china-chip-scandal-urges-outside-ceo](https://www.foxbusiness.com/business-leaders/bessent-calls-nvidia-leadership-shake-up-amid-china-chip-scandal-urges-outside-ceo)
+
+[https://www.cnn.com/2026/11/14/tech/china-megaspeed-nvidia-scandal-hnk-intl](https://www.cnn.com/2026/11/14/tech/china-megaspeed-nvidia-scandal-hnk-intl)
+
+[https://www.theguardian.com/technology/2026/nov/16/elon-musk-tech-execs-open-letter-jensen-huang-return-nvidia-ceo](https://www.theguardian.com/technology/2026/nov/16/elon-musk-tech-execs-open-letter-jensen-huang-return-nvidia-ceo)
+

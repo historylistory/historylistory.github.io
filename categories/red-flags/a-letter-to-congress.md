@@ -553,6 +553,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-11-03 Greenland voted 16-to-0 with 7 abstaining to expand US military infrastructure in Greenland under pressure from Trump, while keeping sovereignty under Denmark.
 
+2026-11-03 DeSantis increasingly criticized Trump and tried to separate himself. 
+
 2026-11-05 Hegseth posted a defiant video in response to worries of impeachment, bashed DEI and transgender, demanded $360B more for the DoW, claiming it, “…didn’t work against President Trump and it won’t work against me…”.
 
 2026-11-05 Marco Rubio was reportedly on resignation watch. 

@@ -464,3 +464,16 @@ SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/]
 [https://www.thedailybeast.com/maga-ohio-senate-candidate-jon-husted-caters-to-trumps-weird-fetish](https://www.thedailybeast.com/maga-ohio-senate-candidate-jon-husted-caters-to-trumps-weird-fetish)
 
 [https://www.cnn.com/2026/10/26/politics/trump-nicki-minaj-jon-husted](https://www.cnn.com/2026/10/26/politics/trump-nicki-minaj-jon-husted)
+
+### 2026 November
+
+2026-11-07 Trump asked UFC boss Dana White to be press secretary, rather than former Republican Conference US press secretary Dana W. White. 
+
+[https://www.bbc.com/news/articles/cvze47p9jeexo](https://www.bbc.com/news/articles/cvze47p9jeexo)
+
+[https://www.cnn.com/2026/11/07/politics/dana-white-trump-press-secretary](https://www.cnn.com/2026/11/07/politics/dana-white-trump-press-secretary)
+
+[https://www.youtube.com/watch?v=eiv8OT1PvAo&t=86s](https://www.youtube.com/watch?v=eiv8OT1PvAo&t=86s)
+
+[https://www.war.gov/About/Biographies/Biography/Article/1170857/dana-w-white/](https://www.war.gov/About/Biographies/Biography/Article/1170857/dana-w-white/)
+

@@ -660,4 +660,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-11-05 Trump signed a proclamation making the Oval Office in its current condition a “historical landmark” so nobody can remove his tacky gold inlay décor. 
 
+2026-11-07 Trump asked UFC boss Dana White to be press secretary, rather than former Republican Conference US press secretary Dana W. White. 
+
 2026-11-10 Eleven Democrats failed to show up to impeach Hegseth. 
+
+2026-11-13 the FAA issued a nationwide ground stop, citing severe communications issues. GOP leaders blamed Democrats and Biden. 

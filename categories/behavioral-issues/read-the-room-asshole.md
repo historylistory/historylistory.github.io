@@ -372,3 +372,11 @@ SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/]
 [https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html](https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html)
 
 [https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/](https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/)
+
+### 2026 November
+
+2026-11-11 Hegseth and his entourage were yelled at by a guard for breaking silence and giggling at the Tomb of the Unknown Soldier. Later Hegseth awarded the guard. 
+
+[https://www.cnn.com/2026/11/11/politics/hegseth-reprimanded-guard-tomb-unknown-soldier](https://www.cnn.com/2026/11/11/politics/hegseth-reprimanded-guard-tomb-unknown-soldier)
+
+[https://www.npr.org/2026/11/13/nx-s1-6039845/hegseth-awards-medal-to-soldier-who-chastised-him](https://www.npr.org/2026/11/13/nx-s1-6039845/hegseth-awards-medal-to-soldier-who-chastised-him)
