@@ -193,3 +193,9 @@ OPINION & RESEARCH: [https://www.youtube.com/watch?v=BDIraTXGn0A&list=WL&index=1
 2026-11-16 United Airlines experienced an outage.
 
 [https://www.cnn.com/2026/11/16/us/united-airlines-outage](https://www.cnn.com/2026/11/16/us/united-airlines-outage)
+
+2026-11-23 The FAA issued another ground-stop, this time at Chicago airport. 
+
+[https://www.youtube.com/watch?v=e7GpySrBayc&list=WL&index=1&t=48s](https://www.youtube.com/watch?v=e7GpySrBayc&list=WL&index=1&t=48s)
+
+[https://www.nbcchicago.com/news/local/ground-stop-issued-at-ohare-airport-due-to-staffing-at-start-of-busy-holiday-week/4020413/](https://www.nbcchicago.com/news/local/ground-stop-issued-at-ohare-airport-due-to-staffing-at-start-of-busy-holiday-week/4020413/)

@@ -278,3 +278,13 @@ PAY WALL [https://www.politico.com/news/2026/09/29/trump-signs-executive-order-t
 
 [https://www.axios.com/2026/10/22/ai-agents-banks-unauthorized-accounts-access](https://www.axios.com/2026/10/22/ai-agents-banks-unauthorized-accounts-access)
 
+### 2026 November
+
+
+2026-11-17 Paris Hilton urged passage of the DEFIANCE Act to increase accountability in cases of deepfakes. At this date the bill had sat in the House for more than 10 months under Republicans.
+
+[https://www.youtube.com/watch?v=8cwF19WKAkE&list=WL&index=2&t=43s](https://www.youtube.com/watch?v=8cwF19WKAkE&list=WL&index=2&t=43s)
+
+[https://www.c-span.org/classroom/document/?27187](https://www.c-span.org/classroom/document/?27187)
+
+[https://www.npr.org/2026/11/17/nx-s1-6042450/paris-hilton-returns-to-capitol-hill-to-push-for-defiance-act-passage](https://www.npr.org/2026/11/17/nx-s1-6042450/paris-hilton-returns-to-capitol-hill-to-push-for-defiance-act-passage)

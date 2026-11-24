@@ -559,19 +559,16 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-11-17 The National Weather Service experienced an outage.
 
-
 2026-11-17 NSA experienced an outage which lasted several days.
-
 
 2026-11-17 Marriott hotels had an outage.
 
+2026-11-17 Paris Hilton urged passage of the DEFIANCE Act to increase accountability in cases of deepfakes. At this date the bill had sat in the House for more than 10 months under Republicans.
 
 
 2026-11-19 VISA, Mastercard and Chase bank all were hacked. 
 
-
 2026-11-19 JAVA was hacked. 
-
 
 2026-11-19 Trump told everyone not to worry about all the outages. 
 

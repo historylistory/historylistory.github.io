@@ -312,3 +312,15 @@ TRACKER [https://www.actonclimate.com/trumptracker/](https://www.actonclimate.co
 [https://www.npr.org/2026/10/28/nx-s1-5995910/trump-wants-remove-regulations-planet-heating-methane](https://www.npr.org/2026/10/28/nx-s1-5995910/trump-wants-remove-regulations-planet-heating-methane)
 
 [https://www.cnbc.com/2026/10/29/trump-methane-rollback-oil-prices-epa.html](https://www.cnbc.com/2026/10/29/trump-methane-rollback-oil-prices-epa.html)
+
+### 2026 November
+
+2026-11-17 In a suburb north of Los Angeles trash “exploded” and created a HAZMAT situation. 
+
+[https://www.youtube.com/watch?v=HhqYWTW4AtE&list=WL&index=3](https://www.youtube.com/watch?v=HhqYWTW4AtE&list=WL&index=3)
+
+[https://www.latimes.com/california/story/2026-11-17/la-me-landfill-geyser](https://www.latimes.com/california/story/2026-11-17/la-me-landfill-geyser)
+
+[https://www.theguardian.com/us-news/2026/nov/18/los-angeles-landfill-explosion-housing](https://www.theguardian.com/us-news/2026/nov/18/los-angeles-landfill-explosion-housing)
+
+

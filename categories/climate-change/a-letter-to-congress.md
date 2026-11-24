@@ -564,4 +564,6 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-11-15 California coasts were hit with heavy surf which led to evacuations. 
 
+2026-11-17 In a suburb north of Los Angeles trash “exploded” and created a HAZMAT situation. 
+
 2026-11-23 The Climate Summit failed to reach an agreement as several countries pushed for more fossil fuels. 
