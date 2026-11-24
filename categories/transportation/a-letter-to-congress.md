@@ -266,3 +266,5 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2026-11-03 Two died in a fatal plane crash in Hamburg Iowa. 
 
 2026-11-13 the FAA issued a nationwide ground stop, citing severe communications issues. GOP leaders blamed Democrats and Biden. 
+
+2026-11-16 United Airlines experienced an outage.

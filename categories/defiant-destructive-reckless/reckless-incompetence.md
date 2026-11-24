@@ -1158,3 +1158,67 @@ More about Pete Hegseth: [https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&in
 OPINION & RESEARCH: [https://www.youtube.com/watch?v=bBqDBl4gatk&list=WL&index=3](https://www.youtube.com/watch?v=bBqDBl4gatk&list=WL&index=3)
 
 OPINION & RESEARCH: [https://www.youtube.com/watch?v=BDIraTXGn0A&list=WL&index=1&t=191s](https://www.youtube.com/watch?v=BDIraTXGn0A&list=WL&index=1&t=191s)
+
+2026-11-15 Microsoft went down.
+
+[https://www.geekwire.com/2026/microsofts-final-outlook-outage-report-details-testing-gaps-and-safeguards-that-backfired/](https://www.geekwire.com/2026/microsofts-final-outlook-outage-report-details-testing-gaps-and-safeguards-that-backfired/)
+
+2026-11-16 United Airlines experienced an outage.
+
+[https://www.cnn.com/2026/11/16/us/united-airlines-outage](https://www.cnn.com/2026/11/16/us/united-airlines-outage)
+
+2026-11-16 Chase bank went down.
+
+[https://www.cnn.com/2026/11/16/business/bank-outage-chase-us-bank-bank-of-america](https://www.cnn.com/2026/11/16/business/bank-outage-chase-us-bank-bank-of-america)
+
+2026-11-17 Apple had an outage.
+
+[https://www.reuters.com/business/retail-consumer/apple-works-restore-services-after-outage-caused-by-internal-update-2026-11-17/](https://www.reuters.com/business/retail-consumer/apple-works-restore-services-after-outage-caused-by-internal-update-2026-11-17/)
+
+2026-11-17 The National Weather Service experienced an outage.
+
+[https://www.tmz.com/2026/11/17/national-weather-service-outage/](https://www.tmz.com/2026/11/17/national-weather-service-outage/)
+
+
+2026-11-17 NSA experienced an outage which lasted several days.
+
+[https://www.nbcnews.com/politics/national-security/classified-nsa-network-went-no-indication-was-attack-sources-say-rcna609859](https://www.nbcnews.com/politics/national-security/classified-nsa-network-went-no-indication-was-attack-sources-say-rcna609859)
+
+
+2026-11-17 Marriott hotels had an outage.
+
+[https://www.hoteldive.com/news/marriott-technology-disruption/875122/](https://www.hoteldive.com/news/marriott-technology-disruption/875122/)
+
+2026-11-19 VISA, Mastercard and Chase bank all were hacked. 
+
+[https://www.wsj.com/finance/banking/visa-mastercard-and-jpmorgan-customer-data-leaked-by-hackers-3b5a0f87](https://www.wsj.com/finance/banking/visa-mastercard-and-jpmorgan-customer-data-leaked-by-hackers-3b5a0f87)
+
+[https://www.forbes.com/sites/maryroeloffs/2026/11/20/chase-visa-mastercard-customer-data-leaked-in-cyberattack/](https://www.forbes.com/sites/maryroeloffs/2026/11/20/chase-visa-mastercard-customer-data-leaked-in-cyberattack/)
+
+[https://www.reuters.com/legal/government/jpmorgan-says-third-party-vendors-targeted-cyberattack-2026-11-19/](https://www.reuters.com/legal/government/jpmorgan-says-third-party-vendors-targeted-cyberattack-2026-11-19/)
+
+
+2026-11-19 JAVA was hacked. 
+
+[https://www.bbc.com/news/articles/cke89jevqm1vo](https://www.bbc.com/news/articles/cke89jevqm1vo)
+
+[https://www.cybersecuritydive.com/news/java-vulnerability-oracle-ai-java4shell/875029/](https://www.cybersecuritydive.com/news/java-vulnerability-oracle-ai-java4shell/875029/)
+
+[https://www.techradar.com/pro/security/java-hit-by-major-security-flaw-heres-what-we-know-about-java4shell-so-far](https://www.techradar.com/pro/security/java-hit-by-major-security-flaw-heres-what-we-know-about-java4shell-so-far)
+
+2026-11-19 Trump told everyone not to worry about all the outages. 
+
+[https://www.nbcnews.com/politics/donald-trump/trump-downplays-bank-email-travel-outages-faa-ground-stop-microsoft-rcna609796 ](https://www.nbcnews.com/politics/donald-trump/trump-downplays-bank-email-travel-outages-faa-ground-stop-microsoft-rcna609796 )
+
+
+2026-11-20 The Cyber Security Chief stepped down amidst all the outages and hacks.
+
+[https://www.bbc.com/news/articles/cwz0k3nn5p5mo](https://www.bbc.com/news/articles/cwz0k3nn5p5mo)
+
+[https://www.audacy.com/national/news/us-cybersecurity-chief-steps-down-amid-mass-disruptions](https://www.audacy.com/national/news/us-cybersecurity-chief-steps-down-amid-mass-disruptions)
+
+2026-11-20 DHS chief Mullin was sidelined by Stephen Miller.
+
+[https://www.latintimes.com/miller-sidelined-mullin-ai-outage-response-601734](https://www.latintimes.com/miller-sidelined-mullin-ai-outage-response-601734)
+
+[https://www.the-independent.com/news/world/americas/us-politics/stephen-miller-markwayne-mullin-timeout-b3088045.html](https://www.the-independent.com/news/world/americas/us-politics/stephen-miller-markwayne-mullin-timeout-b3088045.html)

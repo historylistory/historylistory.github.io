@@ -547,3 +547,35 @@ Technology should serve the public—not become a tool for political retaliation
 
 
 2026-11-12 The NVIDIA CEO Jensen Huang was caught up in a scandal involving extra-marital relations with a potential Chinese espionage asset. NVIDIA stock plunged and Huang resigned. 
+
+2026-11-15 Microsoft went down.
+
+2026-11-16 United Airlines experienced an outage.
+
+2026-11-16 Chase bank went down.
+
+
+2026-11-17 Apple had an outage.
+
+2026-11-17 The National Weather Service experienced an outage.
+
+
+2026-11-17 NSA experienced an outage which lasted several days.
+
+
+2026-11-17 Marriott hotels had an outage.
+
+
+
+2026-11-19 VISA, Mastercard and Chase bank all were hacked. 
+
+
+2026-11-19 JAVA was hacked. 
+
+
+2026-11-19 Trump told everyone not to worry about all the outages. 
+
+
+
+2026-11-20 The Cyber Security Chief stepped down amidst all the outages and hacks.
+

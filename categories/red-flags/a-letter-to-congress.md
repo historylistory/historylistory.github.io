@@ -574,3 +574,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-11-10 Eleven Democrats failed to show up to impeach Hegseth. 
 
 2026-11-10 The Pentagon evacuated aircraft from a second base in the United Kingdom. 
+
+2026-11-18 Trump held a trilateral meeting with Xi and Putin.

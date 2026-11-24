@@ -189,3 +189,7 @@ permalink: /categories/transportation/air-collisions-2026/
 OPINION & RESEARCH: [https://www.youtube.com/watch?v=bBqDBl4gatk&list=WL&index=3](https://www.youtube.com/watch?v=bBqDBl4gatk&list=WL&index=3)
 
 OPINION & RESEARCH: [https://www.youtube.com/watch?v=BDIraTXGn0A&list=WL&index=1&t=191s](https://www.youtube.com/watch?v=BDIraTXGn0A&list=WL&index=1&t=191s)
+
+2026-11-16 United Airlines experienced an outage.
+
+[https://www.cnn.com/2026/11/16/us/united-airlines-outage](https://www.cnn.com/2026/11/16/us/united-airlines-outage)

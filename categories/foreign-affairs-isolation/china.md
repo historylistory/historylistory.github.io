@@ -239,3 +239,10 @@ APPLE & ALIBABA, AUGUST [https://www.reuters.com/business/retail-consumer/apple-
 [https://www.cnn.com/2026/11/14/tech/china-megaspeed-nvidia-scandal-hnk-intl](https://www.cnn.com/2026/11/14/tech/china-megaspeed-nvidia-scandal-hnk-intl)
 
 [https://www.theguardian.com/technology/2026/nov/16/elon-musk-tech-execs-open-letter-jensen-huang-return-nvidia-ceo](https://www.theguardian.com/technology/2026/nov/16/elon-musk-tech-execs-open-letter-jensen-huang-return-nvidia-ceo)
+
+2026-11-18 Trump held a trilateral meeting with Xi and Putin.
+
+[https://thehill.com/policy/defense/6238111-trump-china-russia-nuclear-dialogue-hurdles/](https://thehill.com/policy/defense/6238111-trump-china-russia-nuclear-dialogue-hurdles/)
+
+[https://www.cnn.com/2026/11/20/china/trump-meeting-china-russia-power-rebalance-intl-hnk](https://www.cnn.com/2026/11/20/china/trump-meeting-china-russia-power-rebalance-intl-hnk)
+

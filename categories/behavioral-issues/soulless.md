@@ -1318,3 +1318,19 @@ PAY WALL [https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-do
 [https://nz.news.yahoo.com/trumps-snap-cuts-decimated-food-120018079.html](https://nz.news.yahoo.com/trumps-snap-cuts-decimated-food-120018079.html)
 
 [https://www.whas11.com/video/news/politics/national-politics/trump-administration-proposes-changes-to-snap-benefits/417-9ad27783-bd22-4a66-b0c8-faada3439761](https://www.whas11.com/video/news/politics/national-politics/trump-administration-proposes-changes-to-snap-benefits/417-9ad27783-bd22-4a66-b0c8-faada3439761)
+
+2026-11-19 There was another botched execution in Huntsville Texas in which the victim spent hours writhing in pain.
+
+[https://www.npr.org/2026/11/20/nx-s1-6048461/texas-execution-dennes-moaned-pain](https://www.npr.org/2026/11/20/nx-s1-6048461/texas-execution-dennes-moaned-pain)
+
+[https://www.pbs.org/newshour/nation/texas-says-an-execution-went-as-planned-a-witness-says-screams-showed-tremendous-distress](https://www.pbs.org/newshour/nation/texas-says-an-execution-went-as-planned-a-witness-says-screams-showed-tremendous-distress)
+
+
+2026-11-24 Trump urged the DOJ to speed up federal executions in response to Governor Newsom’s executive action to commute 548 death row sentences in his state. 
+
+[https://www.aljazeera.com/news/2026/11/24/trump-calls-to-expedite-us-federal-executions-blasts-gavin-newsom](https://www.aljazeera.com/news/2026/11/24/trump-calls-to-expedite-us-federal-executions-blasts-gavin-newsom)
+
+[https://www.theguardian.com/us-news/2026/nov/23/trump-justice-department-federal-executions-gavin-newsom](https://www.theguardian.com/us-news/2026/nov/23/trump-justice-department-federal-executions-gavin-newsom)
+
+[https://www.cnn.com/2026/11/23/politics/trump-newsom-death-penalty-commutations-2028](https://www.cnn.com/2026/11/23/politics/trump-newsom-death-penalty-commutations-2028)
+

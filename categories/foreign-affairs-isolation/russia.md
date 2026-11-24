@@ -443,3 +443,8 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 
 [https://www.politico.com/news/2026/11/12/us-envoys-witkoff-and-kushner-meet-putin-in-moscow](https://www.politico.com/news/2026/11/12/us-envoys-witkoff-and-kushner-meet-putin-in-moscow)
 
+2026-11-18 Trump held a trilateral meeting with Xi and Putin.
+
+[https://thehill.com/policy/defense/6238111-trump-china-russia-nuclear-dialogue-hurdles/](https://thehill.com/policy/defense/6238111-trump-china-russia-nuclear-dialogue-hurdles/)
+
+[https://www.cnn.com/2026/11/20/china/trump-meeting-china-russia-power-rebalance-intl-hnk](https://www.cnn.com/2026/11/20/china/trump-meeting-china-russia-power-rebalance-intl-hnk)

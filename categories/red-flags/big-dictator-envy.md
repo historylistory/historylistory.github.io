@@ -337,3 +337,11 @@ Citizens of France
 [https://meidasnews.com/news/sore-loser-bolsonaro-flees-to-florida-declares-himself-president-anyway-in-pathetic-letter](https://meidasnews.com/news/sore-loser-bolsonaro-flees-to-florida-declares-himself-president-anyway-in-pathetic-letter)
 
 [https://www.dw.com/en/flavio-bolsonaro-lands-in-us-declares-himself-leader-of-brazil/a-79788659](https://www.dw.com/en/flavio-bolsonaro-lands-in-us-declares-himself-leader-of-brazil/a-79788659)
+
+### 2026 November
+
+2026-11-18 Trump held a trilateral meeting with Xi and Putin.
+
+[https://thehill.com/policy/defense/6238111-trump-china-russia-nuclear-dialogue-hurdles/](https://thehill.com/policy/defense/6238111-trump-china-russia-nuclear-dialogue-hurdles/)
+
+[https://www.cnn.com/2026/11/20/china/trump-meeting-china-russia-power-rebalance-intl-hnk](https://www.cnn.com/2026/11/20/china/trump-meeting-china-russia-power-rebalance-intl-hnk)

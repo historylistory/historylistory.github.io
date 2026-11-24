@@ -781,3 +781,9 @@ SUB WALL [https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wil
 [https://www.youtube.com/watch?v=wpNbAFWBwrM&list=WL&index=7&t=86s](https://www.youtube.com/watch?v=wpNbAFWBwrM&list=WL&index=7&t=86s)
 
 [https://www.youtube.com/watch?v=_89YgzhfW_s&list=WL&index=8&t=371s](https://www.youtube.com/watch?v=_89YgzhfW_s&list=WL&index=8&t=371s)
+
+2026-11-20 DHS chief Mullin was sidelined by Stephen Miller.
+
+[https://www.latintimes.com/miller-sidelined-mullin-ai-outage-response-601734](https://www.latintimes.com/miller-sidelined-mullin-ai-outage-response-601734)
+
+[https://www.the-independent.com/news/world/americas/us-politics/stephen-miller-markwayne-mullin-timeout-b3088045.html](https://www.the-independent.com/news/world/americas/us-politics/stephen-miller-markwayne-mullin-timeout-b3088045.html)

@@ -765,3 +765,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-11-06 Trump tasked Stephen Miller to replace Susie Wiles as Chief of Staff.
 
 2026-11-09 Conservative media started separating themselves from Trump. 
+
+2026-11-20 DHS chief Mullin was sidelined by Stephen Miller.

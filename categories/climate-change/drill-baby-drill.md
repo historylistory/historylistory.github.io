@@ -195,3 +195,11 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 [https://virginiabusiness.com/epa-repeal-biden-carbon-emission-limits-power-plants-g20-houston/](https://virginiabusiness.com/epa-repeal-biden-carbon-emission-limits-power-plants-g20-houston/)
 
 [https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/](https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/)
+
+### 2026 November
+
+2026-11-23 The Climate Summit failed to reach an agreement as several countries pushed for more fossil fuels. 
+
+[https://www.bbc.com/news/articles/cqwy06zrd26lo](https://www.bbc.com/news/articles/cqwy06zrd26lo)
+
+[https://www.democracynow.org/2026/11/23/cop31_recap](https://www.democracynow.org/2026/11/23/cop31_recap)

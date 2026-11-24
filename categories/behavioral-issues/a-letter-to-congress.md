@@ -784,3 +784,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-11-11 The Trump administration proposed changes to further remove SNAP benefits and further toughen restrictions.  
 
 2026-11-11 Hegseth and his entourage were yelled at by a guard for breaking silence and giggling at the Tomb of the Unknown Soldier. Later Hegseth awarded the guard. 
+
+2026-11-19 There was another botched execution in Huntsville Texas in which the victim spent hours writhing in pain.
+
+2026-11-22 In an effort to create affordable healthcare for Americans, El-Sayed proposed “TrumpCare”, offering to give Trump credit for Medicare for all. El-Sayed appealed to Trump’s ego with both the naming of the proposal, and a gold card for carriers. After this, Trump reposted the proposal on social media and said he’d like to work with Democrats on this. 

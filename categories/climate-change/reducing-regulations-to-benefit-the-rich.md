@@ -597,3 +597,9 @@ From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-im
 [https://www.americanagnetwork.com/2026/11/13/rfa-to-zeldin-epa-should-promptly-deny-rfs-waiver-requests/](https://www.americanagnetwork.com/2026/11/13/rfa-to-zeldin-epa-should-promptly-deny-rfs-waiver-requests/)
 
 [https://ethanolproducer.com/articles/alabama-and-louisiana-governors-petition-epa-for-partial-waiver-of-2027-rfs-rvos](https://ethanolproducer.com/articles/alabama-and-louisiana-governors-petition-epa-for-partial-waiver-of-2027-rfs-rvos)
+
+2026-11-23 The Climate Summit failed to reach an agreement as several countries pushed for more fossil fuels. 
+
+[https://www.bbc.com/news/articles/cqwy06zrd26lo](https://www.bbc.com/news/articles/cqwy06zrd26lo)
+
+[https://www.democracynow.org/2026/11/23/cop31_recap](https://www.democracynow.org/2026/11/23/cop31_recap)

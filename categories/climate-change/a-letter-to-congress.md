@@ -563,3 +563,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-11-13 Alabama and Louisiana requested a partial waiver for renewable fuel blending obligations in 2027. 
 
 2026-11-15 California coasts were hit with heavy surf which led to evacuations. 
+
+2026-11-23 The Climate Summit failed to reach an agreement as several countries pushed for more fossil fuels. 

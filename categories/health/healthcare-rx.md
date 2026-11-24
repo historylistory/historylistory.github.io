@@ -295,3 +295,15 @@ THE ARTICLE [https://www.washingtonpost.com/business/2026/08/13/prescription-dru
 [https://thegrio.com/2026/10/11/medicaid-cuts-maternity-ward-closures/](https://thegrio.com/2026/10/11/medicaid-cuts-maternity-ward-closures/)
 
 [https://www.theguardian.com/us-news/2026/oct/11/medicaid-cuts-maternity-wards](https://www.theguardian.com/us-news/2026/oct/11/medicaid-cuts-maternity-wards)
+
+### 2026 November
+
+2026-11-22 In an effort to create affordable healthcare for Americans, El-Sayed proposed “TrumpCare”, offering to give Trump credit for Medicare for all. El-Sayed appealed to Trump’s ego with both the naming of the proposal, and a gold card for carriers. After this, Trump reposted the proposal on social media and said he’d like to work with Democrats on this. 
+
+[https://thehill.com/homenews/senate/6235945-abdul-el-sayed-trumpcare-medicare-all/](https://thehill.com/homenews/senate/6235945-abdul-el-sayed-trumpcare-medicare-all/)
+
+[https://thehill.com/policy/healthcare/6238566-el-sayed-floats-trump-care-plan/](https://thehill.com/policy/healthcare/6238566-el-sayed-floats-trump-care-plan/)
+
+[https://www.washingtonpost.com/politics/2026/11/22/trump-reposts-el-sayeds-trumpcare-proposal/](https://www.washingtonpost.com/politics/2026/11/22/trump-reposts-el-sayeds-trumpcare-proposal/)
+
+[https://www.nbcnews.com/politics/donald-trump/abdul-el-sayed-catches-trumps-attention-pitch-trumpcare-rcna610626](https://www.nbcnews.com/politics/donald-trump/abdul-el-sayed-catches-trumps-attention-pitch-trumpcare-rcna610626)
