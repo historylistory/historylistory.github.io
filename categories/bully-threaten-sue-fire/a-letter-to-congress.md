@@ -782,3 +782,6 @@ Manhattan grand jury in the hush-money case.
 
 2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 
 
+
+2026-11-26 After Iowa detonated toxic lead, JD Vance blamed Obama for kicking “the can down the road” by not doing the detonation sooner. 
+

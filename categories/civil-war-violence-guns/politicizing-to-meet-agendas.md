@@ -53,3 +53,16 @@ permalink: /categories/civil-war-violence-guns/politicizing-to-meet-agendas/
 [https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/](https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/)
 
 FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALLY NEUTRAL: [https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/](https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/)
+
+### 2026 November
+
+
+2026-11-26 After Iowa detonated toxic lead, JD Vance blamed Obama for kicking “the can down the road” by not doing the detonation sooner. 
+
+[https://www.youtube.com/watch?v=d57A4yujKW8&list=WL&index=1](https://www.youtube.com/watch?v=d57A4yujKW8&list=WL&index=1)
+
+[https://www.army.mil/article/297069/army_announces_controlled_detonation_of_degraded_explosive_material_at_iowa_army_ammunition_plant](https://www.army.mil/article/297069/army_announces_controlled_detonation_of_degraded_explosive_material_at_iowa_army_ammunition_plant)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/vance-obama-iowa-lead-explosion-azide-b3092309.html](https://www.independent.co.uk/news/world/americas/us-politics/vance-obama-iowa-lead-explosion-azide-b3092309.html)
+
+[https://thehill.com/homenews/administration/6243397-vance-obama-iowa-munitions-lead-azide/](https://thehill.com/homenews/administration/6243397-vance-obama-iowa-munitions-lead-azide/)

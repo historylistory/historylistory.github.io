@@ -766,4 +766,11 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-11-09 Conservative media started separating themselves from Trump. 
 
+2026-11-19 Elon Musk told news outlets he is “not MAGA” and he didn’t even know what the acronym “MAGA” stands for. 
+
 2026-11-20 DHS chief Mullin was sidelined by Stephen Miller.
+
+2026-11-25 Laura Loomer broke with Trump over the reinstatement of disgraced NVIDIA CEO Jensen Huang.
+
+
+2026-11-26 After Iowa detonated toxic lead, JD Vance blamed Obama for kicking “the can down the road” by not doing the detonation sooner. 

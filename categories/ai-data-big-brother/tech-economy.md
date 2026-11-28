@@ -385,3 +385,14 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 
 [https://www.theguardian.com/technology/2026/nov/16/elon-musk-tech-execs-open-letter-jensen-huang-return-nvidia-ceo](https://www.theguardian.com/technology/2026/nov/16/elon-musk-tech-execs-open-letter-jensen-huang-return-nvidia-ceo)
 
+2026-11-25 Elon Musk received FCC approval to inundate the atmosphere with one million of his satellites. 
+
+[https://www.youtube.com/watch?v=BFPeao9EmCk&list=WL&index=4](https://www.youtube.com/watch?v=BFPeao9EmCk&list=WL&index=4)
+
+[https://www.bbc.com/news/articles/cwp836l8n1jgo](https://www.bbc.com/news/articles/cwp836l8n1jgo)
+
+[https://www.cnbc.com/2026/11/25/spacex-fcc-satellite-approval.html](https://www.cnbc.com/2026/11/25/spacex-fcc-satellite-approval.html)
+
+[https://www.iflscience.com/fcc-approves-musks-plan-for-a-million-satellites-as-experts-warn-of-environmental-disaster-and-the-end-of-the-night-sky-85292](https://www.iflscience.com/fcc-approves-musks-plan-for-a-million-satellites-as-experts-warn-of-environmental-disaster-and-the-end-of-the-night-sky-85292)
+
+[https://www.cbsnews.com/news/spacex-fcc-approval-data-centers-space/](https://www.cbsnews.com/news/spacex-fcc-approval-data-centers-space/)

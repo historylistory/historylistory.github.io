@@ -575,4 +575,12 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-11-10 The Pentagon evacuated aircraft from a second base in the United Kingdom. 
 
+2026-11-11 Seven US citizens including the Taxpayer Alliance Against Genocide presented evidence to the International Criminal Court in Hague against Trump and the administration to obtain an arrest warrant for several alleged crimes including supporting genocide. 
+
 2026-11-18 Trump held a trilateral meeting with Xi and Putin.
+
+2026-11-19 Elon Musk told news outlets he is “not MAGA” and he didn’t even know what the acronym “MAGA” stands for. 
+
+2026-11-25 Elon Musk received FCC approval to inundate the atmosphere with one million of his satellites. 
+
+2026-11-27 The United States Air Force Cloud one was hacked. 

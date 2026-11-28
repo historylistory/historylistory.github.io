@@ -1222,3 +1222,19 @@ OPINION & RESEARCH: [https://www.youtube.com/watch?v=BDIraTXGn0A&list=WL&index=1
 [https://www.latintimes.com/miller-sidelined-mullin-ai-outage-response-601734](https://www.latintimes.com/miller-sidelined-mullin-ai-outage-response-601734)
 
 [https://www.the-independent.com/news/world/americas/us-politics/stephen-miller-markwayne-mullin-timeout-b3088045.html](https://www.the-independent.com/news/world/americas/us-politics/stephen-miller-markwayne-mullin-timeout-b3088045.html)
+
+
+
+[https://www.forbes.com/sites/saradorn/2026/11/24/cybersecurity-breach-reported-at-cia-and-national-intelligence-directors-office/](https://www.forbes.com/sites/saradorn/2026/11/24/cybersecurity-breach-reported-at-cia-and-national-intelligence-directors-office/)
+
+[https://www.forbes.com/sites/saradorn/2026/11/24/cybersecurity-breach-reported-at-cia-and-national-intelligence-directors-office/](https://www.forbes.com/sites/saradorn/2026/11/24/cybersecurity-breach-reported-at-cia-and-national-intelligence-directors-office/)
+
+PAY WALL [https://www.washingtonpost.com/national-security/2026/11/24/hackers-breach-cia-unclassified-computer-system/](https://www.washingtonpost.com/national-security/2026/11/24/hackers-breach-cia-unclassified-computer-system/)
+
+2026-11-24 The FBI NCIC crime database was hacked. 
+
+[https://www.youtube.com/watch?v=BiYs_s7T9pw](https://www.youtube.com/watch?v=BiYs_s7T9pw)
+
+[https://www.malwarebytes.com/blog/data-breaches/2026/11/fbi-crime-database-reportedly-hacked](https://www.malwarebytes.com/blog/data-breaches/2026/11/fbi-crime-database-reportedly-hacked)
+
+[https://www.securityweek.com/fbi-investigating-apparent-hack-of-its-key-national-criminal-justice-database-ap-source-says/](https://www.securityweek.com/fbi-investigating-apparent-hack-of-its-key-national-criminal-justice-database-ap-source-says/)

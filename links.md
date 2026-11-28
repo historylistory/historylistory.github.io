@@ -158,6 +158,8 @@ permalink: /links/
 
 [GET INVOLVED: Regulations.gov](https://www.regulations.gov/) Just know this is a Trump administration monitored site. The last time I tried to comment on a bill the link landed on an error page. Legally the administration can't ignore its constituents, but they can make things difficult. 
 
+[GET INVOLVED: Taxpayer Alliance Against Genocide](https://www.taxpayeralliance.net/)
+
 ---
 
 [GET INVOLVED/FIGHT EXTREMISM: Institute for Strategic Dialogue](https://www.isdglobal.org/)
@@ -266,6 +268,9 @@ permalink: /links/
 [HUMAN RIGHTS & GLOBAL AFFAIRS: Global Burden of Disease @ HealthData.org](https://www.healthdata.org/research-analysis/gbd)
 
 [HUMAN RIGHTS & GLOBAL AFFAIRS: Foundation of Goodness, Sri Lanka at UnconditionalCompassion.org](https://www.unconditionalcompassion.org/)
+
+[HUMAN RIGHTS & GLOBAL AFFAIRS: Taxpayer Alliance Against Genocide](https://www.taxpayeralliance.net/)
+
 
 --- 
 

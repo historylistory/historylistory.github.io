@@ -314,12 +314,31 @@ SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](
 [https://www.audacy.com/national/news/us-cybersecurity-chief-steps-down-amid-mass-disruptions](https://www.audacy.com/national/news/us-cybersecurity-chief-steps-down-amid-mass-disruptions)
 
 
+2026-11-24 The CIA was hacked. 
+
+[https://www.forbes.com/sites/saradorn/2026/11/24/cybersecurity-breach-reported-at-cia-and-national-intelligence-directors-office/](https://www.forbes.com/sites/saradorn/2026/11/24/cybersecurity-breach-reported-at-cia-and-national-intelligence-directors-office/)
+
+[https://www.forbes.com/sites/saradorn/2026/11/24/cybersecurity-breach-reported-at-cia-and-national-intelligence-directors-office/](https://www.forbes.com/sites/saradorn/2026/11/24/cybersecurity-breach-reported-at-cia-and-national-intelligence-directors-office/)
+
+PAY WALL [https://www.washingtonpost.com/national-security/2026/11/24/hackers-breach-cia-unclassified-computer-system/](https://www.washingtonpost.com/national-security/2026/11/24/hackers-breach-cia-unclassified-computer-system/)
+
+2026-11-24 The FBI NCIC crime database was hacked. 
+
+[https://www.youtube.com/watch?v=BiYs_s7T9pw](https://www.youtube.com/watch?v=BiYs_s7T9pw)
+
+[https://www.malwarebytes.com/blog/data-breaches/2026/11/fbi-crime-database-reportedly-hacked](https://www.malwarebytes.com/blog/data-breaches/2026/11/fbi-crime-database-reportedly-hacked)
+
+[https://www.securityweek.com/fbi-investigating-apparent-hack-of-its-key-national-criminal-justice-database-ap-source-says/](https://www.securityweek.com/fbi-investigating-apparent-hack-of-its-key-national-criminal-justice-database-ap-source-says/)
 
 
 
+2026-11-27 The United States Air Force Cloud one was hacked. 
 
+[https://www.reuters.com/world/hackers-breach-us-air-force-flagship-cloud-one-computing-platform-2026-11-27/](https://www.reuters.com/world/hackers-breach-us-air-force-flagship-cloud-one-computing-platform-2026-11-27/)
 
+[https://www.cbsnews.com/news/u-s-air-force-cloud-platform-breached-by-hackers/](https://www.cbsnews.com/news/u-s-air-force-cloud-platform-breached-by-hackers/)
 
+[https://www.france24.com/en/americas/20261128-us-military-cloud-platform-reportedly-hacked-as-pentagon-insists-systems-are-secure](https://www.france24.com/en/americas/20261128-us-military-cloud-platform-reportedly-hacked-as-pentagon-insists-systems-are-secure)
 
 
 

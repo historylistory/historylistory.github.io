@@ -508,3 +508,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-11-10 The Pentagon evacuated aircraft from a second base in the United Kingdom. 
 
 2026-11-11 Hegseth and his entourage were yelled at by a guard for breaking silence and giggling at the Tomb of the Unknown Soldier. Later Hegseth awarded the guard. 
+
+2026-11-27 The United States Air Force Cloud one was hacked. 

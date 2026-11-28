@@ -106,3 +106,15 @@ permalink: /categories/climate-change/ai-impacts/
 [https://www.cnbc.com/2026/11/09/senate-infrastructure-bill-data-centers.html](https://www.cnbc.com/2026/11/09/senate-infrastructure-bill-data-centers.html)
 
 [https://www.youtube.com/watch?v=u0UOUCQyBbg&list=WL&index=3](https://www.youtube.com/watch?v=u0UOUCQyBbg&list=WL&index=3)
+
+2026-11-25 Elon Musk received FCC approval to inundate the atmosphere with one million of his satellites. 
+
+[https://www.youtube.com/watch?v=BFPeao9EmCk&list=WL&index=4](https://www.youtube.com/watch?v=BFPeao9EmCk&list=WL&index=4)
+
+[https://www.bbc.com/news/articles/cwp836l8n1jgo](https://www.bbc.com/news/articles/cwp836l8n1jgo)
+
+[https://www.cnbc.com/2026/11/25/spacex-fcc-satellite-approval.html](https://www.cnbc.com/2026/11/25/spacex-fcc-satellite-approval.html)
+
+[https://www.iflscience.com/fcc-approves-musks-plan-for-a-million-satellites-as-experts-warn-of-environmental-disaster-and-the-end-of-the-night-sky-85292](https://www.iflscience.com/fcc-approves-musks-plan-for-a-million-satellites-as-experts-warn-of-environmental-disaster-and-the-end-of-the-night-sky-85292)
+
+[https://www.cbsnews.com/news/spacex-fcc-approval-data-centers-space/](https://www.cbsnews.com/news/spacex-fcc-approval-data-centers-space/)

@@ -475,3 +475,17 @@ PAY WALL [https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration
 [https://www.13newsnow.com/article/news/nation-world/lg-smart-tvs-hackable-audio-recording/507-1807f5d1-1504-4b40-adbf-6e505339230b](https://www.13newsnow.com/article/news/nation-world/lg-smart-tvs-hackable-audio-recording/507-1807f5d1-1504-4b40-adbf-6e505339230b)
 
 [https://www.tomshardware.com/tech-industry/big-tech/lg-strongly-denies-tv-security-claims-says-tracking-and-snooping-concerns-not-true-online-investigation-claims-216-000-000-spy-tvs-record-audio](https://www.tomshardware.com/tech-industry/big-tech/lg-strongly-denies-tv-security-claims-says-tracking-and-snooping-concerns-not-true-online-investigation-claims-216-000-000-spy-tvs-record-audio)
+
+### 2026 November
+
+2026-11-25 Elon Musk received FCC approval to inundate the atmosphere with one million of his satellites. 
+
+[https://www.youtube.com/watch?v=BFPeao9EmCk&list=WL&index=4](https://www.youtube.com/watch?v=BFPeao9EmCk&list=WL&index=4)
+
+[https://www.bbc.com/news/articles/cwp836l8n1jgo](https://www.bbc.com/news/articles/cwp836l8n1jgo)
+
+[https://www.cnbc.com/2026/11/25/spacex-fcc-satellite-approval.html](https://www.cnbc.com/2026/11/25/spacex-fcc-satellite-approval.html)
+
+[https://www.iflscience.com/fcc-approves-musks-plan-for-a-million-satellites-as-experts-warn-of-environmental-disaster-and-the-end-of-the-night-sky-85292](https://www.iflscience.com/fcc-approves-musks-plan-for-a-million-satellites-as-experts-warn-of-environmental-disaster-and-the-end-of-the-night-sky-85292)
+
+[https://www.cbsnews.com/news/spacex-fcc-approval-data-centers-space/](https://www.cbsnews.com/news/spacex-fcc-approval-data-centers-space/)

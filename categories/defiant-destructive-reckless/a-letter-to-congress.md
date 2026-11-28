@@ -689,3 +689,9 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-11-20 The Cyber Security Chief stepped down amidst all the outages and hacks.
 
 2026-11-20 DHS chief Mullin was sidelined by Stephen Miller.
+
+2026-11-24 A White House staffer revealed plans from the Trump administration to overhaul the Smithsonian. 
+
+2026-11-24 The CIA was hacked. 
+
+2026-11-24 The FBI NCIC crime database was hacked. 

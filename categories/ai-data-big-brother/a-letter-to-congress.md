@@ -576,3 +576,14 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-11-20 The Cyber Security Chief stepped down amidst all the outages and hacks.
 
+
+
+
+2026-11-24 The CIA was hacked. 
+
+2026-11-24 The FBI NCIC crime database was hacked. 
+
+
+2026-11-25 Elon Musk received FCC approval to inundate the atmosphere with one million of his satellites. 
+
+2026-11-27 The United States Air Force Cloud one was hacked. 

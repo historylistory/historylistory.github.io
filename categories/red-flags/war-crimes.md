@@ -881,3 +881,21 @@ TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=50
 [https://www.cnn.com/2026/11/11/politics/live-news/hegseth-impeachment-congress](https://www.cnn.com/2026/11/11/politics/live-news/hegseth-impeachment-congress)
 
 More about Pete Hegseth: [https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6](https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6)
+
+
+2026-11-11 Seven US citizens including the Taxpayer Alliance Against Genocide presented evidence to the International Criminal Court in Hague against Trump and the administration to obtain an arrest warrant for several alleged crimes including supporting genocide. 
+
+[https://worldbeyondwar.org/u-s-citizens-to-submit-evidence-to-international-criminal-court-seeking-arrest-warrants-against-trump-rubio-other-senior-u-s-officials/](https://worldbeyondwar.org/u-s-citizens-to-submit-evidence-to-international-criminal-court-seeking-arrest-warrants-against-trump-rubio-other-senior-u-s-officials/)
+
+[https://blackallianceforpeace.com/movement-news/us-citizens-submit-evidence-to-icc](https://blackallianceforpeace.com/movement-news/us-citizens-submit-evidence-to-icc)
+
+[https://truthout.org/articles/taxpayer-alliance-against-genocide-calls-on-icc-to-arrest-trump-rubio-over-gaza/](https://truthout.org/articles/taxpayer-alliance-against-genocide-calls-on-icc-to-arrest-trump-rubio-over-gaza/)
+
+[https://www.aa.com.tr/en/americas/us-activists-urge-icc-to-issue-arrest-warrants-for-trump-and-rubio-over-gaza/4121564](https://www.aa.com.tr/en/americas/us-activists-urge-icc-to-issue-arrest-warrants-for-trump-and-rubio-over-gaza/4121564)
+
+[https://www.commondreams.org/news/icc-arrest-warrants-trump-rubio](https://www.commondreams.org/news/icc-arrest-warrants-trump-rubio)
+
+[https://www.thenational.scot/news/26721527.lawyers-submit-evidence-claiming-donald-trump-guilty-war-crimes/](https://www.thenational.scot/news/26721527.lawyers-submit-evidence-claiming-donald-trump-guilty-war-crimes/)
+
+[https://www.taxpayeralliance.net/](https://www.taxpayeralliance.net/)
+

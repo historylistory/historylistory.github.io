@@ -288,3 +288,5 @@ PAY WALL [https://www.politico.com/news/2026/09/29/trump-signs-executive-order-t
 [https://www.c-span.org/classroom/document/?27187](https://www.c-span.org/classroom/document/?27187)
 
 [https://www.npr.org/2026/11/17/nx-s1-6042450/paris-hilton-returns-to-capitol-hill-to-push-for-defiance-act-passage](https://www.npr.org/2026/11/17/nx-s1-6042450/paris-hilton-returns-to-capitol-hill-to-push-for-defiance-act-passage)
+
+

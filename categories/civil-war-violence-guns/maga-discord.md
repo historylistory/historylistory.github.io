@@ -787,3 +787,24 @@ SUB WALL [https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wil
 [https://www.latintimes.com/miller-sidelined-mullin-ai-outage-response-601734](https://www.latintimes.com/miller-sidelined-mullin-ai-outage-response-601734)
 
 [https://www.the-independent.com/news/world/americas/us-politics/stephen-miller-markwayne-mullin-timeout-b3088045.html](https://www.the-independent.com/news/world/americas/us-politics/stephen-miller-markwayne-mullin-timeout-b3088045.html)
+
+2026-11-19 Elon Musk told news outlets he is “not MAGA” and he didn’t even know what the acronym “MAGA” stands for. 
+
+[https://www.aljazeera.com/opinions/2026/11/28/elon-musk-can-afford-a-little-maga-amnesia](https://www.aljazeera.com/opinions/2026/11/28/elon-musk-can-afford-a-little-maga-amnesia)
+
+[https://thehill.com/homenews/campaign/6229970-elon-musk-claims-not-maga/](https://thehill.com/homenews/campaign/6229970-elon-musk-claims-not-maga/)
+
+[https://www.cbsnews.com/news/elon-musk-not-maga-midterm-spending-trump/](https://www.cbsnews.com/news/elon-musk-not-maga-midterm-spending-trump/)
+
+[https://www.pbs.org/newshour/politics/im-not-maga-elon-musk-says-after-republicans-midterm-thrashing](https://www.pbs.org/newshour/politics/im-not-maga-elon-musk-says-after-republicans-midterm-thrashing)
+
+
+2026-11-25 Laura Loomer broke with Trump over the reinstatement of disgraced NVIDIA CEO Jensen Huang.
+
+[https://www.youtube.com/watch?v=CHWiF5iQhfM&list=WL&index=5&t=275s](https://www.youtube.com/watch?v=CHWiF5iQhfM&list=WL&index=5&t=275s)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/trump-nvidia-huang-laura-loomer-b3090845.html](https://www.independent.co.uk/news/world/americas/us-politics/trump-nvidia-huang-laura-loomer-b3090845.html)
+
+[https://www.youtube.com/watch?v=CHWiF5iQhfM](https://www.youtube.com/watch?v=CHWiF5iQhfM)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-nvidia-huang-laura-loomer-b3090845.html](https://www.the-independent.com/news/world/americas/us-politics/trump-nvidia-huang-laura-loomer-b3090845.html)

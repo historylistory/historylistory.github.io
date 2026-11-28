@@ -178,3 +178,20 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 
 APPLE & ALIBABA, AUGUST [https://www.reuters.com/business/retail-consumer/apple-trains-its-own-ai-model-china-market-with-alibabas-support-sources-say-2026-08-14/](https://www.reuters.com/business/retail-consumer/apple-trains-its-own-ai-model-china-market-with-alibabas-support-sources-say-2026-08-14/)
 
+
+
+### 2026 November
+
+2026-11-25 Elon Musk received FCC approval to inundate the atmosphere with one million of his satellites. 
+
+[https://www.youtube.com/watch?v=BFPeao9EmCk&list=WL&index=4](https://www.youtube.com/watch?v=BFPeao9EmCk&list=WL&index=4)
+
+[https://www.bbc.com/news/articles/cwp836l8n1jgo](https://www.bbc.com/news/articles/cwp836l8n1jgo)
+
+[https://www.cnbc.com/2026/11/25/spacex-fcc-satellite-approval.html](https://www.cnbc.com/2026/11/25/spacex-fcc-satellite-approval.html)
+
+[https://www.iflscience.com/fcc-approves-musks-plan-for-a-million-satellites-as-experts-warn-of-environmental-disaster-and-the-end-of-the-night-sky-85292](https://www.iflscience.com/fcc-approves-musks-plan-for-a-million-satellites-as-experts-warn-of-environmental-disaster-and-the-end-of-the-night-sky-85292)
+
+[https://www.cbsnews.com/news/spacex-fcc-approval-data-centers-space/](https://www.cbsnews.com/news/spacex-fcc-approval-data-centers-space/)
+
+

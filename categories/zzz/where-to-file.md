@@ -29,6 +29,14 @@ permalink: /categories/zzz/where-to-file/
 
 [https://www.nbcnews.com/politics/trump-administration/live-blog/trump-blanche-doj-clayton-congress-iran-ice-2026-midterm-live-updates-rcna587566](https://www.nbcnews.com/politics/trump-administration/live-blog/trump-blanche-doj-clayton-congress-iran-ice-2026-midterm-live-updates-rcna587566)
 
+
+2026-07-30 Dems introduced SB 5183 the Anti-Corruption Bureau Creation Act which would allow private citizens to file civil lawsuits against the government for corruption. 
+
+[https://www.congress.gov/bill/119th-congress/senate-bill/5183/text](https://www.congress.gov/bill/119th-congress/senate-bill/5183/text)
+
+[https://wedefendthevote.org/schumer-introduces-anti-corruption-bill-dtv-supports/](https://wedefendthevote.org/schumer-introduces-anti-corruption-bill-dtv-supports/)
+
+
 ### 2026 August
 
 2026-08-09 Todd Blanche was confirmed as Attorney General. Bill Cassidy stated, “I’ll be criticized for this vote. What’s new? But, people of Louisiana can be assured that I worked hard to understand the issue and to make the right decision. With that, I yield”. 

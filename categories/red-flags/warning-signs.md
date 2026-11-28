@@ -678,3 +678,21 @@ SUB WALL [https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wil
 [https://www.wsj.com/world/middle-east/u-s-aircraft-evacuated-from-second-u-k-base-due-to-iran-threat-835a8b58](https://www.wsj.com/world/middle-east/u-s-aircraft-evacuated-from-second-u-k-base-due-to-iran-threat-835a8b58)
 
 [https://www.military.com/us-air-force-evacuates-aircraft-from-a-base-in-england-because-of-a-threat-us-official-says](https://www.military.com/us-air-force-evacuates-aircraft-from-a-base-in-england-because-of-a-threat-us-official-says)
+
+2026-11-19 Elon Musk told news outlets he is “not MAGA” and he didn’t even know what the acronym “MAGA” stands for. 
+
+[https://www.aljazeera.com/opinions/2026/11/28/elon-musk-can-afford-a-little-maga-amnesia](https://www.aljazeera.com/opinions/2026/11/28/elon-musk-can-afford-a-little-maga-amnesia)
+
+[https://thehill.com/homenews/campaign/6229970-elon-musk-claims-not-maga/](https://thehill.com/homenews/campaign/6229970-elon-musk-claims-not-maga/)
+
+[https://www.cbsnews.com/news/elon-musk-not-maga-midterm-spending-trump/](https://www.cbsnews.com/news/elon-musk-not-maga-midterm-spending-trump/)
+
+[https://www.pbs.org/newshour/politics/im-not-maga-elon-musk-says-after-republicans-midterm-thrashing](https://www.pbs.org/newshour/politics/im-not-maga-elon-musk-says-after-republicans-midterm-thrashing)
+
+2026-11-27 The United States Air Force Cloud one was hacked. 
+
+[https://www.reuters.com/world/hackers-breach-us-air-force-flagship-cloud-one-computing-platform-2026-11-27/](https://www.reuters.com/world/hackers-breach-us-air-force-flagship-cloud-one-computing-platform-2026-11-27/)
+
+[https://www.cbsnews.com/news/u-s-air-force-cloud-platform-breached-by-hackers/](https://www.cbsnews.com/news/u-s-air-force-cloud-platform-breached-by-hackers/)
+
+[https://www.france24.com/en/americas/20261128-us-military-cloud-platform-reportedly-hacked-as-pentagon-insists-systems-are-secure](https://www.france24.com/en/americas/20261128-us-military-cloud-platform-reportedly-hacked-as-pentagon-insists-systems-are-secure)

@@ -567,3 +567,11 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-11-17 In a suburb north of Los Angeles trash “exploded” and created a HAZMAT situation. 
 
 2026-11-23 The Climate Summit failed to reach an agreement as several countries pushed for more fossil fuels. 
+
+2026-11-24 A huge Thanksgiving storm left millions without power on the East coast. 
+
+
+
+2026-11-25 Huge king tides threatened the West coast. 
+
+2026-11-25 Elon Musk received FCC approval to inundate the atmosphere with one million of his satellites. 

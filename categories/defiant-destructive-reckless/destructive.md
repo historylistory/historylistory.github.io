@@ -451,3 +451,8 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://www.reuters.com/world/trump-says-oval-office-become-national-monument-2026-11-05/](https://www.reuters.com/world/trump-says-oval-office-become-national-monument-2026-11-05/)
 
+2026-11-24 A White House staffer revealed plans from the Trump administration to overhaul the Smithsonian. 
+
+[https://www.youtube.com/watch?v=JLvAETflbc8&list=WL&index=6](https://www.youtube.com/watch?v=JLvAETflbc8&list=WL&index=6)
+
+[https://www.propublica.org/article/dc-metro-smithsonian-american-history-plan](https://www.propublica.org/article/dc-metro-smithsonian-american-history-plan)

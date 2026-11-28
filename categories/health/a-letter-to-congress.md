@@ -752,3 +752,6 @@ Taken together, these actions and statements suggest a lack of compassion and re
 ## 2026 November
 
 2026-11-22 In an effort to create affordable healthcare for Americans, El-Sayed proposed “TrumpCare”, offering to give Trump credit for Medicare for all. El-Sayed appealed to Trump’s ego with both the naming of the proposal, and a gold card for carriers. After this, Trump reposted the proposal on social media and said he’d like to work with Democrats on this. 
+
+
+2026-11-26 After Iowa detonated toxic lead, JD Vance blamed Obama for kicking “the can down the road” by not doing the detonation sooner. 

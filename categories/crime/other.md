@@ -155,6 +155,13 @@ Watch: “How Billionaires Cracked the Food Stamp Cheat Code” More Perfect Uni
 
 SUB WALL [https://www.washingtonpost.com/world/2026/07/27/operation-southern-spear-has-not-slowed-cocaine-entering-us/](https://www.washingtonpost.com/world/2026/07/27/operation-southern-spear-has-not-slowed-cocaine-entering-us/)
 
+
+2026-07-30 Dems introduced SB 5183 the Anti-Corruption Bureau Creation Act which would allow private citizens to file civil lawsuits against the government for corruption. 
+
+[https://www.congress.gov/bill/119th-congress/senate-bill/5183/text](https://www.congress.gov/bill/119th-congress/senate-bill/5183/text)
+
+[https://wedefendthevote.org/schumer-introduces-anti-corruption-bill-dtv-supports/](https://wedefendthevote.org/schumer-introduces-anti-corruption-bill-dtv-supports/)
+
 ### 2026 August
 
 2026-08-03 Capital One argued the closure of approximately 385 Trump-related accounts in 2021 was justified because they were all flagged for money laundering. 

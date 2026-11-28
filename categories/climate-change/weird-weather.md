@@ -561,3 +561,16 @@ AUGUST 30 [https://www.hawaiinewsnow.com/2026/09/08/hurricane-lowell-passes-just
 
 [https://www.nbcbayarea.com/news/california/huge-waves-california-coast-piers-closure/4176499/](https://www.nbcbayarea.com/news/california/huge-waves-california-coast-piers-closure/4176499/)
 
+2026-11-24 A huge Thanksgiving storm left millions without power on the East coast. 
+
+[https://www.youtube.com/watch?v=aY7s2CbylT8&list=WL&index=3](https://www.youtube.com/watch?v=aY7s2CbylT8&list=WL&index=3)
+
+[https://www.nbcnews.com/news/us-news/much-country-thanksgiving-featured-nasty-weather-rcna611521](https://www.nbcnews.com/news/us-news/much-country-thanksgiving-featured-nasty-weather-rcna611521)
+
+
+
+2026-11-25 Huge king tides threatened the West coast. 
+
+[https://www.youtube.com/watch?v=yiDWi8JTvYc&list=WL&index=2](https://www.youtube.com/watch?v=yiDWi8JTvYc&list=WL&index=2)
+
+[https://www.theguardian.com/us-news/2026/nov/27/king-tides-us-coasts-storms-threaten-thanksgiving-celebrations](https://www.theguardian.com/us-news/2026/nov/27/king-tides-us-coasts-storms-threaten-thanksgiving-celebrations)

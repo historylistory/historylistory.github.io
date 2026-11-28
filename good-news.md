@@ -330,6 +330,15 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 
 [https://apnews.com/article/mamdani-nyc-grocery-stores-prices-bronx-4634d4030209fea663e68f5d6d09a325](https://apnews.com/article/mamdani-nyc-grocery-stores-prices-bronx-4634d4030209fea663e68f5d6d09a325)
 
+
+2026-07-30 Dems introduced SB 5183 the Anti-Corruption Bureau Creation Act which would allow private citizens to file civil lawsuits against the government for corruption. 
+
+[https://www.congress.gov/bill/119th-congress/senate-bill/5183/text](https://www.congress.gov/bill/119th-congress/senate-bill/5183/text)
+
+[https://wedefendthevote.org/schumer-introduces-anti-corruption-bill-dtv-supports/](https://wedefendthevote.org/schumer-introduces-anti-corruption-bill-dtv-supports/)
+
+
+
 ### 2026 August
 
 2026-08-05 Dr. Abdul El-Sayed won the Michigan Senate primary campaigning on Medicare for all, ending aid to Israel, and getting money out of politics. Trump said on Abdul El-Sayed (D-MI), “He’s a man of hate. He doesn’t love Israel, he doesn’t love Jewish people, he hates ‘em. He hates ‘em with a passion that burns in his heart and there’s not a freaking thing he can do about it”. 

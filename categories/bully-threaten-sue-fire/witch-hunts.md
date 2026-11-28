@@ -375,3 +375,14 @@ FROM 2019 [https://www.c-span.org/clip/white-house-event/president-trump-weighs-
 [https://www.nbcnews.com/politics/justice-department/slotkin-lawyer-warns-blanche-not-obey-trumps-frivolous-demand-investig-rcna608311](https://www.nbcnews.com/politics/justice-department/slotkin-lawyer-warns-blanche-not-obey-trumps-frivolous-demand-investig-rcna608311)
 
 [https://truthsocial.com/@realDonaldTrump/posts/117576401180733840](https://truthsocial.com/@realDonaldTrump/posts/117576401180733840)
+
+
+2026-11-26 After Iowa detonated toxic lead, JD Vance blamed Obama for kicking “the can down the road” by not doing the detonation sooner. 
+
+[https://www.youtube.com/watch?v=d57A4yujKW8&list=WL&index=1](https://www.youtube.com/watch?v=d57A4yujKW8&list=WL&index=1)
+
+[https://www.army.mil/article/297069/army_announces_controlled_detonation_of_degraded_explosive_material_at_iowa_army_ammunition_plant](https://www.army.mil/article/297069/army_announces_controlled_detonation_of_degraded_explosive_material_at_iowa_army_ammunition_plant)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/vance-obama-iowa-lead-explosion-azide-b3092309.html](https://www.independent.co.uk/news/world/americas/us-politics/vance-obama-iowa-lead-explosion-azide-b3092309.html)
+
+[https://thehill.com/homenews/administration/6243397-vance-obama-iowa-munitions-lead-azide/](https://thehill.com/homenews/administration/6243397-vance-obama-iowa-munitions-lead-azide/)
